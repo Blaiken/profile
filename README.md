@@ -14,7 +14,7 @@
 
 ###
 
-<p align="left">⁜ Técnico Superior Universitario (TSU)<br>⁜ Persistente<br>⁜ Diseñador<br>⁜ Inglés básico<br>⁜ Me gusta aprender</p>
+<p align="left">⁜ Técnico Superior Universitario (TSU)<br>⁜ Persistente<br>⁜ Diseñador<br>⁜ Inglés básico<br>⁜ Aprendiendo en cada momento</p>
 
 ###
 
